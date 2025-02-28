@@ -1,3 +1,2 @@
-Smart Technologies (BD) Ltd
-Full Responsive Multi Page Website Design Step by Step
+Fully Responsive Multi Page Website Design Step by Step
 
